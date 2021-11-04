@@ -4,4 +4,4 @@ We don't have musch content up right now.
 
 ### Support or Contact
 
-Having trouble? Ask questions at our Discord: 
+Having trouble? Ask questions at our Discord: https://discord.gg/nNMNg6kYQA
